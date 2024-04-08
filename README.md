@@ -10,4 +10,5 @@
 <div align="center">【ANY PRONOUNS】【AROMANTIC】
 <div align="center">YOUR FREE TO INTERACT AS LONG AS YOU AREN'T A WEIRDO /OR PEOPLES WHO THINK THEY DIDN'T DO/HAVE THE SAME THING IN THE PAST, ACTING LIKE THEY NEVER DID OR USED TO DO THOSE THINGS. (y'all fr should stop being so "judgemental", let the person be, is it THAT hard? damn. go ahead get mad idgaf.)
 <div align="center">【READ MY RENTRY FOR MORE! it's linked here on my github the first one.】
+  <div align="center">SIGN MY GUESTBOOK PLSPLS 🙏 !!
 <div align="center">╰─〔❨✧✧❩〕─╯
