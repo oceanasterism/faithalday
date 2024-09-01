@@ -9,5 +9,4 @@
 <div align="center">YOUR FREE TO INTERACT AS LONG AS YOU AREN'T A WEIRDO. i unfriend freely sorry ^_^"
   <div align="center">c+h or sit beside me is fine too, you don't have to ask for my permission i wouldn't mind having company at all.
 <div align="center">
-  <div align="center">SIGN MY ATABOOK PLSPLS 🙏 !!
 <div align="center">╰─〔❨✧✧❩〕─╯
