@@ -8,5 +8,5 @@
 <div align="center"> MORROW
 <div align="center"> ANY PRONOUNS 
   <div align="center">c+h/cuddle or sit beside me is fine too, you don't have to ask for my permission i wouldn't mind at all.
-<div align="center"> keep in mind that i have 0 interest on ships but ranpoe/poeran, ship all you want idrc respectfully :p
+<div align="center"> you'll see me with ranpo pony on mostly and in bsd area and if im not in the area then im at the party island! ^_^
 <div align="center">╰─〔❨✧✧❩〕─╯
